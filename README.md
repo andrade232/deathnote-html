@@ -1,2 +1,117 @@
-# deathnote-html
+***![enter image description here](https://vignette.wikia.nocookie.net/deathnote/images/0/08/Death_Note_title_white.png/revision/latest?cb=20180119023014)**
+***About***
+it about a character called light Yagami which the son of a officer a strait A student he has nothing strange about him but that he has a notebook that kills anyone that name is one it. he use this note book to try and kill all the criminals in the world. but finds out that he that there is more notebook out in the world.
+![enter image description here](https://vignette.wikia.nocookie.net/deathnote/images/0/05/299276.jpg/revision/latest/scale-to-width-down/212?cb=20160609084120)
+
+ Light Yagami
+
+### Gender
+
+Male
+
+### Blood type
+
+A[[2[[3[[4]
+
+### Date of birth 
+February 28, 1986
+### Height
+
+179 cm[[2]](https://deathnote.fandom.com/wiki/Light_Yagami#cite_note-HtR13-1)[[3]](https://deathnote.fandom.com/wiki/Light_Yagami#cite_note-AnimationGuide-2)  (5' 10½")
+
+### Weight
+
+54 kg[[2]](https://deathnote.fandom.com/wiki/Light_Yagami#cite_note-HtR13-1)[[3]](https://deathnote.fandom.com/wiki/Light_Yagami#cite_note-AnimationGuide-2)  (119 lbs)
+February 28, 1986
+
+*Information*
+After putting much thought into whether or not he should continue using the notebook, he ascertains that no one else will be able to bear the burden of improving the world. Light then meets the previous owner of the Death Note, a Shinigami named Ryuk He explains his reasons for dropping the Death Note in the [Human World], and when it is Light's time to die, he will be the one to write Light's name in his notebook. Light then tells him of his goal of getting rid of all the evil people in the world, and ruling over it as God. The first note user (Kari) he the First one to find the death note and meet the Shinigami (god of death) Ryuk.
+![enter image description here](https://vignette.wikia.nocookie.net/deathnote/images/a/a8/Ryuk_DN_Coloured.png/revision/latest?cb=20170621011059)
+
+
+### Gender: unknown 
+### Blood type: unknown 
+### Date of birth: unknown 
+### Height: unknown 
+### Weight: unknown 
+Ryuk is a god that drop his death note on perspire to entire than him self. Ryuk explains when he first meets Light, he will take Light's life when his time comes. In the manga, Ryuk does this during the final confrontation between the  [Japanese Task Force)  and the  [SPK]  after Light is shot several times by  [Matsuda] "Touta Matsuda"). Light desperately begs Ryuk to write the names of the investigation team and SPK members in the Death Note. Ryuk appears to write them down, but he reveals he simply wrote Light's name instead. He had expected Light might have thought of some way out of his situation, but seeing as he is desperate enough to go to Ryuk for help, Ryuk decides it is all over for him. Ryuk returns to the Shinigami Realm after killing Light.
+
+In the anime, Light escapes the  [Yellowbox Warehouses suicide distracts everyone else. With his wounds too severe for him to escape very far, Ryuk, who is watching him from above, decides that following Light around during a prison sentence waiting for his death is not worth his time and thus writes Light's name in his Death Note, giving Light the final words, "It's been interesting." Light dies with an apparition of  "L (character)")  standing over him, mirroring Light standing over L at his death. both of them is being hunted by L and the tacks forces.
+
+![enter image description here](https://vignette.wikia.nocookie.net/deathnote/images/7/76/299276L.jpg/revision/latest?cb=20160609084420)
+
+### Species
+
+[Human](https://deathnote.fandom.com/wiki/Human "Human")
+
+### Gender
+
+Male
+
+### Blood type
+
+Unknown[[1]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-HtR13-0)[[2]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-AnimationGuide-1)
+
+### Date of birth
+
+October 31, 1979[[1]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-HtR13-0)  (1982 in anime[[2]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-AnimationGuide-1))
+
+### Date of death
+
+November 5, 2004[[1]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-HtR13-0)  (2007 in anime[[2]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-AnimationGuide-1))  
+July 30, 2006  ([film series](https://deathnote.fandom.com/wiki/Death_Note_(film_series) "Death Note (film series)"))  
+August 2015[[3]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-2)  (TV drama)
+
+### Age
+
+22  ([_Death Note: Another Note_](https://deathnote.fandom.com/wiki/Death_Note:_Another_Note:_The_Los_Angeles_BB_Murder_Cases "Death Note: Another Note: The Los Angeles BB Murder Cases"))  
+24-25
+
+### Height
+
+179 cm[[1]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-HtR13-0)[[2]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-AnimationGuide-1)  (5' 10½")  (estimated)
+
+### Weight
+
+50 kg[[1]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-HtR13-0)[[2]](https://deathnote.fandom.com/wiki/L_(character)#cite_note-AnimationGuide-1)  (110 lbs.)  (estimated)
+  
+  L notices the rapid rate of criminals dying of heart attacks, and suspects a person is behind this and that he is in Japan, so he seeks cooperation from the  [NPA]. He begins the Kira case by having undocumented death row inmate  [Lind L. Tailor] introduce himself on television as "L" and say that Kira is "evil." This provokes Kira into killing Tailor on the spot, which in turn confirms that the Kira killings are not a coincidental succession of heart attacks among st criminals but the designs of an ingenious murderer who will kill any and all who try to stop him. It also reveals Kira's location, since the broadcast was televised only in the Kanto region. Not long after this, because of the time of day during which the criminals die coincide with out-of-school hours, he deduces that Kira may well be a student. Not long after this incident, criminals begin dying during one-hour intervals, intentionally contradicting L's theory, showing to L that Kira has access to police information. Because of this, he requests that 12 FBI agents investigate those close to each of the members of the police.
+
+Shortly after the FBI's investigation begins, Kira begins testing his abilities using criminals and leaves behind meaningless clues, successfully distracting L from the agents. Not too long after this, all 12 FBI agents die at Kira's hand. This causes a large portion of the NPA to quit the investigation, only leaving a few members,  [Soichiro Yagami]. L books a hotel room where all six of them can regularly do their investigation, and he gives them counterfeit police badges as well as belt buckles which allow them to contact L in case of an emergency.This is l he the detective leader to catch Kira (light Yagami) he use the tacks forces tries but end up dying himself by kira. then the final person is near the next successor of L.
+![enter image description here](https://vignette.wikia.nocookie.net/deathnote/images/a/a9/Manga_character_icon_Near.jpg/revision/latest?cb=20170716181142)
+ ### Species
+
+[Human](https://deathnote.fandom.com/wiki/Human "Human")
+
+### Gender
+
+Male
+
+### Blood type
+
+B[[1]](https://deathnote.fandom.com/wiki/Near#cite_note-:0-0)[[2]](https://deathnote.fandom.com/wiki/Near#cite_note-:1-1)
+
+### Date of birth
+
+August 24, 1991[[1]](https://deathnote.fandom.com/wiki/Near#cite_note-:0-0)  (1994 in anime[[2]](https://deathnote.fandom.com/wiki/Near#cite_note-:1-1))  
+1997  ([film series](https://deathnote.fandom.com/wiki/Death_Note_(film_series) "Death Note (film series)"))
+
+### Age
+
+13  (pre-timeskip)  
+17-18  (post-timeskip)  
+21  ([post-series one-shot](https://deathnote.fandom.com/wiki/Death_Note_One-Shot_Special "Death Note One-Shot Special"))  
+8  (_L: Change the WorLd_)  
+19  (_[Death Note: New Generation](https://deathnote.fandom.com/wiki/Ryuzaki%27s_Chapter:_Dying_Wish "Ryuzaki's Chapter: Dying Wish")_)
+
+### Height
+
+155cm[[1]](https://deathnote.fandom.com/wiki/Near#cite_note-:0-0)[[2]](https://deathnote.fandom.com/wiki/Near#cite_note-:1-1)  (5' 1")
+
+### Weight
+
+40kg[[1]](https://deathnote.fandom.com/wiki/Near#cite_note-:0-0)[[2]](https://deathnote.fandom.com/wiki/Near#cite_note-:1-1)  (88 lbs)
+
+nearly four years after the death of L, Near and the Director of the  [FBI] "Federal Bureau of Investigation"),  [Steve Mason]), meet with the President of the United States. The Director informs the President that the current 'L' is false and was created by the Japanese Police to avoid disorder. The President is informed that the murders performed by Kira were done with a Death Note. The Director asks Near if these statements are correct, and Near replies that they are. Near explains that on November 5, 2004, L pursued  [Higuchi]"Kyosuke Higuchi"), and Higuchi was surrounded by police cars in his vehicle within forty minutes. Near says that L warned the police to not get near Higuchi's car, meaning that there is no doubt that Higuchi had the ability to kill. The President asks Near if he thinks Higuchi killed with a Death Note, and Near responds that the notebook has the power to kill those whose name is written in it. Near explains that a policeman at the scene reported hearing Higuchi mention a notebook that could kill someone whose face you know if you write their name in it. Near says that afterward, a notebook was removed from the scene and taken away via helicopter. Near says that this indicates that with L gone, the notebook is most likely in the hands of the  [Japanese Police. The Director tells the President that Near began his own investigation with no prior evidence, but his research materials that he brought for the President support his theory. The President asks the Director who this boy is, and the Director responds that Near is the rightful successor to the name of 'L.'
+    If they wanted to continue death note they get another Shinigami to drop their death note so another murdering spread can happen with a hole another kira in the world so near can catch them thought out another murdering spread to happen again to make another mystery to solve.      
  
